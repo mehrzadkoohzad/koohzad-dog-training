@@ -31,7 +31,7 @@ Our content is designed to empower trainers and pet owners with knowledge and sk
 ## Visit Our Website
 
 For full access to our resources, detailed articles, and training programs, visit:  
-[Kouhzad Dog Training](https://kouhzaddog.com)
+[Kouhzad Dog Training](https://mehrzadkoohzad.com/)
 
 ---
 
